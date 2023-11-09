@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **bryanwalsh220@gmail.com**
 
-- ⚡ Fun fact **I love to cook, explore the great outdoors and build things with my hands!**
+- ⚡ Fun fact **I love to cook, explore the great outdoors, and build things with my hands!**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
